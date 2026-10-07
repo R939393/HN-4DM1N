@@ -1,2 +1,0 @@
-# HN-4DM1N
-APA KAMU 
